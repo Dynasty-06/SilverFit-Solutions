@@ -1,1 +1,0 @@
-# SilverFit-Solutions
